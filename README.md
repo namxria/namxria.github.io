@@ -1,1 +1,0 @@
-# namxria.github.io
